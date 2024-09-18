@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on hacking prodigy so i can gett level 100
 - 📫 How to reach me Jett.nothhaft@stu.woodford.kyschools.us
-- 😄 Pronouns: hack prodigy
+- 😄 Pronouns: male
 - ⚡ Fun fact: i love sports
 
 <!---
